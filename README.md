@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Yash Tyagi</h1>
-<h3 align="center">A passionate, inquisitive and hardworking Computer Science student India</h3>
+<h3 align="center">A passionate, inquisitive and hardworking Computer Science student </h3>
 
 - 💬 Ask me about **Technology, Innovations, Ideas**
 
