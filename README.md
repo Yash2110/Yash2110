@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **tyagi21st@gmail.com**
 
-- 📄 Know about my experiences [https://beige-arleyne-70.tiiny.site](https://beige-arleyne-70.tiiny.site)
+- 📄 Know about my experiences [https://cyan-iris-79.tiiny.site](https://cyan-iris-79.tiiny.site) 
 
 - ⚡ Fun fact **I am the in-house psychiatrist for my friends. 😂**
 
